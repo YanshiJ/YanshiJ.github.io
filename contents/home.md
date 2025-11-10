@@ -6,9 +6,9 @@ He is currently a student at Macao Polytechnic University, pursuing a Bachelor's
 
 #### Contact
 
-Email: 3340706403@qq.com
-Phone: +853 65578821
-YouTube: [wells bob](https://www.youtube.com/channel/UCbORSVx_RsQByBjsEceB-DA)
+Email: 3340706403@qq.com/
+Phone: +853 65578821/
+YouTube: [wells bob](https://www.youtube.com/channel/UCbORSVx_RsQByBjsEceB-DA)/
 
 #### Education
 B.Sc., Artificial Intelligence, Macao Polytechnic University, 2025--2029
